@@ -1,1 +1,1 @@
-Programowanie
+Programowanie - Oliwier Kasprzak
